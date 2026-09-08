@@ -1,1 +1,1 @@
-# Guaranty-Trust-Bank---Audit-Readiness-Case-Study
+# Guaranty-Trust-Bank-Audit-Readiness-Case-Study
